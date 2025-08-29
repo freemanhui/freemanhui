@@ -1,5 +1,5 @@
 ## Hi there 👋
 
- **📡 I’m Freeman, a Platonic Sapce Explorer.**
+ **📡 I’m Freeman, a Platonic Space Explorer.**
 
 
